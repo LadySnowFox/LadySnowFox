@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LadySnowFox
-- 👀 I’m interested in Anime, Manag and Technology
+- 👀 I’m interested in Anime, Manga and Technology
 - 🌱 I’m currently learning Begining of Computing and Progream 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me to email
